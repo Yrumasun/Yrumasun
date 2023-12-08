@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Yrumasun
+- it's nice to see you
+- I'm a student and I'm still studying
+- But I think I'll learn a lot of new things to write a lot of codes and prog
+- And yes you can subscribe to my telegram channel Kostya, I'll be glad to see you
+- Bye
